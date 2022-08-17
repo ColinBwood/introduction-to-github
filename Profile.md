@@ -1,1 +1,1 @@
-MY first GitHub profile - good greif Charlie Brown
+MY first GitHub profile - good grief Charlie Brown
